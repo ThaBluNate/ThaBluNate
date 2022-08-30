@@ -3,7 +3,6 @@
 ### Welcome to my profile!
 ### Here's a bit bout me 😊
 
-- He/Him
 - 💼 I’m currently working on Serkket! ping me about beta testing!
 - 📨 here's how to reach me: 
 
