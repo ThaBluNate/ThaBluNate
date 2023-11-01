@@ -6,5 +6,5 @@
 - 💼 I’m currently working on Serkket! ping me about beta testing!
 - 📨 here's how to reach me: 
 
-      Discord: BluNate#8439
+      Discord: @BluNate
       Email: Epicgamernate@gmail.com
